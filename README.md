@@ -1,1 +1,0 @@
-# sridiyer.github.io
